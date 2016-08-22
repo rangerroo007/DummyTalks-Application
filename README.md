@@ -1,2 +1,2 @@
-# DummyTalks
+#nigger DummyTalks
 The application
